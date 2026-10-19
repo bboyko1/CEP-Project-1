@@ -6,5 +6,7 @@ In recent times, AI has been on a constant rise an example being whether for aca
 Youtube Video Link: 
 
 Jackie Chung: Document Writer, Editor
+
 Brandon Boyko: Researcher, Voice of the Recording
+
 Zidian Chen: PowerPoint Organizer
